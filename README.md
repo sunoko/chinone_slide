@@ -1,1 +1,0 @@
-# chinone_slide
